@@ -12,3 +12,7 @@ https://github.com/jaswu51/ShadowHand_Manipulation/assets/91216581/efb77122-4bc4
 
 https://github.com/jaswu51/ShadowHand_Manipulation/assets/91216581/d74604c4-50ae-4556-9a1a-17a57b962813
 
+
+
+https://github.com/jaswu51/ShadowHand_Manipulation/assets/91216581/1cc94a63-e049-47c9-8750-9fe540b3a08f
+
